@@ -1,6 +1,5 @@
 # 👋 Hi, I'm Wan Nur Shafiqah
 
-🎯 Data & Automation Enthusiast | Building End-to-End Analytics & ML Projects  
 🛠️ I’m a curious and impact-driven builder who loves using data and automation to remove friction from everyday problems. Always learning, always simplifying.
 
 ---
