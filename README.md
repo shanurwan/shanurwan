@@ -4,9 +4,9 @@
 
 ---
 
-## 📬 Let’s Connect
+## 📬 Drop a DM — always open to connect, collab, or chat!
 
 📎 [LinkedIn](http://www.linkedin.com/in/wan-shafiqah-852636223)  
 🌐 [Portfolio](https://shanurwan.github.io/portfolio/) 
-📬 Drop a DM — always open to connect, collab, or chat!
+
 
