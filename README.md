@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Wan Nur Shafiqah
 
-🛠️ Just a regular Malaysian crafting public data tool for Malaysian. Answering the What, Where, Will, How and Why one solution at a time. Always learning, always simplifying and always open to connect, collab, or chat!
+🛠️ Just a regular Malaysian crafting public data tool for Malaysian. Answering the What, Where, Will, How and Why one solution at a time. 
 
 
 ## 📬 Drop a DM 
